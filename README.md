@@ -1,6 +1,6 @@
 ## Hi, I'm Jaya Suriya Suresh 👋
 
-**MSc Supply Chain Management student at NEOMA Business School (Rouen, France)**, looking for a 6-month supply chain internship from January 2027.
+**MSc Supply Chain Management student at NEOMA Business School (Rouen, France)**, looking for a 6-month supply chain internship from April 2027.
 
 🌐 **Portfolio:** [jayasuriya-suresh.github.io](https://jayasuriya-suresh.github.io)  
 💼 **LinkedIn:** [linkedin.com/in/jaya-suriya-s](https://linkedin.com/in/jaya-suriya-s)  
